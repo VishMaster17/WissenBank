@@ -9,3 +9,7 @@ At Wissen, clients come first. We help individuals, families, institutions and g
 
 ### Recent Insights
 At Wissen, we lead with exceptional ideas. Across all our businesses, we offer keen insight on today's most critical issues.
+
+
+
+#### © 2021 Wissen Bank. All rights reserved.
